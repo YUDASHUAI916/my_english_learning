@@ -70,16 +70,28 @@
 
 > adj. 弹性
 
+- stakeholder
+
+> 利益相关者
+
+[BBC News Review: Twitter: Millions leave](https://www.youtube.com/watch?v=zFMT3timtAc&t=315s)
+
 - take over
 
 > phrase: 接管
 
 - flock
->
-- on fire
->
-- mammoth
->
-- stakeholder
 
-> 利益相关者
+> n. 群 | v. move together in a large group
+
+- on fire
+
+> adj. （褒义）火爆、很赞
+
+- mammoth
+
+> n. 猛犸象 | adj. to describe really big things -> mammoth journy: 漫长的旅途
+
+- trunk
+
+> n. 躯干
