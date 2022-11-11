@@ -95,3 +95,31 @@
 - trunk
 
 > n. 躯干
+
+## November 11
+
+[COP27: World faces catastrophe](https://www.youtube.com/watch?v=UQLUk942GPk&t=19s)
+
+- reprioritize
+
+> 重排优先顺序
+
+- catastrophe
+
+> 灾难
+
+*sentences:*
+> Countries must reprioritize climate change or the world faces catastrophe.
+
+- landmark
+  
+> similar: milestone/turning point
+
+- greenwashing
+
+> activities that make people think an organisation is more environmentally friendly than it really is.
+> *example:* This company says it uses natural ingredients, but it's just greenwashing.
+
+- warning shots
+
+> signals that show action is needed.
