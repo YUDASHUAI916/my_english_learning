@@ -127,3 +127,21 @@
 - warning shots
 
 > signals that show action is needed.
+
+## Week 2
+
+### November 16
+
+[Rishi Sunak is the UK's new prime minister: BBC News Review](https://www.youtube.com/watch?v=ZJnpOAl4h6Y)
+
+- prime minister
+
+> 总理
+
+- bruising
+
+> 淤血
+
+- Let's hope that never happens.
+
+> 让我们希望它永远不会发生。
