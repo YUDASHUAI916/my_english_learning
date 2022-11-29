@@ -145,3 +145,30 @@
 - Let's hope that never happens.
 
 > 让我们希望它永远不会发生。
+
+## Week 3
+
+### November 29
+
+[World population increases to 8 billion](https://www.youtube.com/watch?v=cAz_TWuYcjs)
+
+- nutrition
+
+> 营养
+
+- don't peek too soon
+
+> 别刚开始就用尽全力以至于没后劲了
+
+- pose
+
+> v. 提出（+贬义词）如：pose a danger
+
+- scandal
+
+> n. 丑行
+
+- quiz
+
+> 测验
+
